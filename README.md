@@ -1,3 +1,6 @@
 # Double Pair ♠️ ♥️ 
 
-![alt photo](https://github.com/doublepair/doublepair/blob/main/git_pic.jpg)
+🇺🇦 from 🇮🇹	living in 🇲🇹
+
+3D artist and developer in the iGaming industry
+
