@@ -2,5 +2,6 @@
 
 🇺🇦 from 🇮🇹	living in 🇲🇹
 
-3D artist and developer in the iGaming industry
+Project Manager at JackSun☀️ cons.
 
+🚱No tap water for me, thank you.
